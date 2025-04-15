@@ -1,6 +1,6 @@
 👋 Hi, I’m @SunGreatSage
 
-😄 Currently I am studying for a master's degree in the United States
+😄 I'm currently working on my PhD in Computer Science in the US
 
 ⚡ I speak: English, Chinese and a little Russian
 
